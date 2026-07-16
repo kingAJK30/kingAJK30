@@ -1,5 +1,3 @@
-# KingAJK30
-
 <br />
 <br />
 
